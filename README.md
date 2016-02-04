@@ -1,2 +1,1 @@
-# TaskUs
-Company Name
+I am optimistic and always looking to tomorrow with a smile. There's nothing more sensible than doing what you love and living with no limits. Learning and gaining bonafide experiences is one of my obsession and I am confident that I could carry matters with high hand.
